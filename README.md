@@ -11,3 +11,9 @@ Nama : Cinta Berliana Anggelah
 Kelas : XIIR2
 
 Absen : 08
+
+NIS : 4150/1215.070 
+
+Nama Sekolah : SMK TELKOM MALANG
+
+
